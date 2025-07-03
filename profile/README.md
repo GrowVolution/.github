@@ -1,6 +1,6 @@
 # 🌱 GrowVolution
 
-**GrowVolution** ist mehr als ein Projekt – es ist ein still wachsendes System.  
+**GrowVolution** ist mehr als nur irgendein Projekt – es ist ein still wachsendes System.  
 Eine Plattform für persönliches Wachstum, gemeinsames Lernen und solidarisches Wirtschaften.  
 Frei von Likes, Werbung und Ablenkung. Dafür mit Sinn, Tiefe und echter Beteiligung.
 
