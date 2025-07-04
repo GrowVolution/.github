@@ -44,8 +44,8 @@ Unser Ziel: Mehr Freiheit für gesellschaftlich wertvolle Tätigkeiten – beson
 
 ## 📌 Ausblick
 
-Diese Skizze ist nicht das fertige Bild – sondern ein Anfang.  
-Wir laden dich ein, mitzugestalten: kritisch, kreativ, konstruktiv.  
+Das hier ist natürlich nur eine grobe Skizze - sie soll einen Ausgangspunkt bieten.  
+Wir laden dich also ein, mitzugestalten: kritisch, kreativ, konstruktiv.  
 Denn nur gemeinsam kann aus einer Idee eine Bewegung werden.
 
 Vielen Dank für deine Zeit, dein Interesse – und vielleicht bald deinen Beitrag.  
