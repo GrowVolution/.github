@@ -38,7 +38,7 @@ Das [Banking-System](https://banking.growvolution.org/) verfolgt einen radikal n
 Wer möchte, kann die Verwaltung der eigenen Finanzen durch Vollmacht an unsere Organe übergeben.  
 Im Gegenzug sichern wir eine dauerhaft ausgeglichene Kontoführung – unabhängig vom monatlichen Einkommen.  
 Die Grundlage dafür ist ein freiwilliger, fairer Abgabeanteil, den wir gemeinsam definieren – kombiniert mit Vereinsspenden und einem Fokus auf Ausgleich statt Kontrolle.  
-Unser Ziel: Mehr Freiheit für gesellschaftlich wertvolle Tätigkeiten – besonders dort, wo klassische Märkte versagen.
+Unser Ziel: Mehr Freiheit für gesellschaftlich wertvolle Tätigkeiten, sowie Rentner – besonders dort, wo klassische Märkte versagen.
 
 ---
 
