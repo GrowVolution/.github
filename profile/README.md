@@ -14,10 +14,10 @@ info@growv-mail.org
 +49 174 5881313
 ```
 
-#### Represented by the Board
-- Pierre Schkoldow (1. Chairsperson)
-- Maximilian Bohl (2. Chairsperson)
+#### Represented by the Board (§ 26 BGB)
+1. Chairsperson: Pierre Schkoldow
+2. Chairsperson: Maximilian Bohl
 
 #### Registered in the Register of Associations
-Local Court Brunswick (Amtsgericht Braunschweig)<br>
-VR 202639
+Local Court: Amtsgericht Braunschweig<br>
+Register Number: VR 202639
